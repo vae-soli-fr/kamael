@@ -1,0 +1,3 @@
+Les officiers sont distingués parmi les Soldats tout comme le sont les Archivistes, les Civils ou encore les Scientifiques. Les encadrants à l'Académie tentent de les débusquer le plus tôt possible, pour commencer à les tester, et à les instruire plus avant sur ce qui sera leur éventuel poste une fois sortis des rangs de l'Académie. Même si chacun de ces éléments n'obtient pas forcément un poste immédiatement à la sortie, ils se démarquent tout de même par leur pensée vive et leur capacité quasi naturelle à diriger.
+
+Depuis que le peuple Kamael s'est ouvert au Monde extérieur, certains d'entre eux sont dirigés vers des situations plus politiques que militaires, et font office d'ambassadeurs des Kamaels auprès des autres Races.

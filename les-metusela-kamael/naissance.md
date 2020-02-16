@@ -1,0 +1,11 @@
+Ici, nous ne développerons que le cas des Kamaels provenant de “naissances artificielles”. C'est à dire ceux qui ne sont pas issus d’une matrice féminine mais d’une matrice artificielle recréant des conditions identiques, contrôlée par un ordinateur surpuissant : Nornil.
+
+(Ce n’est pas sans raison si ca vous rappelle un peu le film Matrix, mais un autre exemple possible pour la naissance des Kamaels serait le film “The Island”. Bien entendu, en lieu et place d'électricité et d'électronique, on a ici la magie.)
+
+Dans un recoin du labyrinthe que sont les sous-sols d’Arviterre – sous la Cave des Âmes, plus particulièrement – se trouvent les Cuves où naissent les Kamaels. Grâce à ces appareils sophistiqués, il ne suffit que de quelques semaines pour amener un soldat à maturation.
+
+Nornil pioche dans la banque génétique mise à sa disposition par les Géants de façon tout à fait aléatoire, et actionne le processus qui suit son cours presque en autonomie. Aux temps où leurs recherches étaient encore en cours, les Géants s'étaient inspirés des qualités les plus enviables des Cinq Races pour créer leurs soldats, tout en sélectionnant les gênes les plus prometteurs pour se prémunir un maximum contre les anomalies ; les Kamaels sont donc créés de toutes pièces, selon des aptitudes propres aux Cinq Races, tout en restant quasiment identiques entre eux du fait du peu de variations génétiques approuvées par les Géants. Notons à propos de l'aile justement, qu'il s'agit peut-être de l'aspect qui a été emprunté aux Arteias.
+
+Le soldat vient à la vie à sa taille adulte et avec un cerveau parfaitement développé. Le seul problème est qu’il n’a aucune expérience de la vie à ce stade : il sera donc aussi inutile et peu autonome qu’un bébé des Cinq Races.
+
+Une fois le corps entièrement formé, Nornil les sort de leur placenta artificiel. Ce sont ensuite les muscles qu’elle se charge de développer par impulsions électriques, grâce à la foudre qui tombe souvent sur l'île, les amenant au niveau moyen pour un adulte normalement constitué. C’est-à-dire ceux d’un adulte sachant tenir sa tête, marcher, courir, soulever, appuyer, etc. Pendant ce temps, le sujet est maintenu endormi, aidé par une respiration artificielle.

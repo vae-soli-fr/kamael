@@ -1,0 +1,3 @@
+Les soldats sont l'essentiel de la force armée des Kamaels. Pour certains, ils se cantonneront pour toute leur durée de vie à ce stade, pour d'autres, ils pourront envisager une légère évolution en devenant chef d'unité. Ces Kamaels sont dans la moyenne, le résultat attendu des recherches des Géants. Des armes à l'état pur, sans trop d'esprit d'initiative, obéissant aux ordres et prêts à se jeter corps et âme dans une bataille. Ils sont la chair à canon de l'armée. Pas des civils, mais à quelques différences près, c'est tout comme.
+
+(Ne prenez pas ça comme une insulte à vos personnages ! Vos pjs ne rentrent pas dans cette catégorie, mais dans celle des officiers.)

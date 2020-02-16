@@ -1,0 +1,5 @@
+Non pas que la sexualité soit importante au point de nécessiter tout un chapitre, mais il est important de bien la définir pour éviter des travers. Les Kamaels ne sont pas spécialement portés sur le sexe. Ils savent maintenant que les autres races se reproduisent ainsi, mais cela leur était encore totalement étranger il y a quelques dizaines d'années, du fait de leur éducation première.
+
+Les Kamaels connaissent la pudeur et l'intimité, ils respectent leur corps - qui est leur véritable arme - et répugnent à se faire toucher ; ils évitent les rapports trop physiques, réservés au combat. Bien qu'ils n'en aient pas toujours conscience on voit souvent des Kamaels attentionnés avec leur aile - ce qui peut laisser penser que leur aile est érogène ou du moins un endroit sensible tout comme les mains des autres Races.
+
+Cela dit, depuis que la fonction de reproduction a été réimplantée, la sexualité est devenu un concept aussi sacré que le combat. On arrive pas à ce rapport privilégié avec un autre Kamael à la légère, et - au départ pour perpétrer la race - engendrer un enfant est une tâche à considérer avec réflexion. Abandonner un enfant serait un crime très grave.

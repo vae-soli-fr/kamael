@@ -1,0 +1,17 @@
+Les Kamaels ont un mode de fonctionnement totalement militaire. Chacun y a sa place, allant de l’administration à l’approvisionnement, en passant par les recherches scientifiques et l’exploration. Mais si chacun a une place adaptée à ses capacités, tous n’en restent pas moins des soldats de métier.
+
+Depuis la réactivation des fonctions de procréation des Kamaels, on voit des bambins se pourchasser dans les rues de la cité de Gevurah. Le nombre de naissances “artificielles” devient petit à petit inversement proportionnel au nombre de naissances “naturelles”. Les cuves deviennent donc au fur et à mesure un lieu où il ne vaut mieux pas se retrouver (dans la plupart des cas, elles servent à soigner les blessures les plus graves, ou encore à reformater un Kamael estimé dangereux pour les siens.)
+
+Chaque Kamael en âge de servir est accueilli par l'Académie, qui se charge de tester les capacités de ce futur soldat Kamael. En fonction des résultats des tests, il sera ou non incorporé à l’élite : les soldats de terrain. Les autres sections rassemblent les chercheurs, les administratifs, les éleveurs, les enseignants et les médecins - sections également prestigieuses - etc. Toutes ces sections sans lesquelles une armée ne pourrait fonctionner.
+
+Les soldats présentant des anomalies discrètes sont généralement affectés à l'approvisionnement, tandis que ceux démontrant une intelligence différente sont dirigés vers les sections qui leur conviendront le mieux. Toutes ces sélections s'effectuent dès les premiers jours à l'Académie, durant les tests préliminaires. Les déviants ou les Kamaels présentant de trop grosses anomalies sont tout bonnement recyclés, voire arrêtés. Les archivistes et les Scientifiques - au sens large - sont vite séparés des autres, quant à eux.
+
+À la tête de cette gigantesque armée se trouve le Hiérarque Kekropus, secondé par le Conseil des Sages, qui trône à la Maison des Anciens. De ce conseil, seuls Perwan, Casca et Zenya sont des membres connus de tous. Les autres préfèrent généralement rester dans l’ombre. On aperçoit parfois Katenar - qui fait office de Général - et Rodenpicula lorsque la situation l'exige. Le Hiérarque est également secondé par six Vice-Hiérarques.
+
+En dessous se trouvent, par ordre hiérarchique décroissant : les Amiraux, les Commandants, les Capitaines, les Lieutenants, et les Sergents. En dessous se trouvent les Militaires, les Aspirants, les Civils et enfin les Cataphractaires.
+
+Grâce à la sagesse des membres du Conseil, et la complémentarité généralement présente entre l’Hiérarque et l’intelligence des Vice-Hiérarques, la nation Kamaelle est dirigée d’une main de fer, qui se révèle effroyablement efficace.
+
+De plus, l’éducation que les soldats suivent dans les Académies les rendent responsables, mais surtout enclins à obéir aux ordres de façon plus ou moins intelligente selon les grades et les affectations. On obtient ainsi une armée plus que puissante, et mortellement efficace une fois mise en action.
+
+Depuis quelques temps, des élèves d'autres Races sont intégrés dans l'Académie à la demande de l'élève et/ou de son école d'origine. Il a été décidé par une session du Conclave des Races de permettre ces échanges afin de renforcer l'unité des Six Races, et de faire profiter des monstres créés par Nornil à des jeunes en entraînement. Chaque élève loge dans son Ambassade, et est pris en charge par des professeurs de sa race, et spécifiquement formés à son art.

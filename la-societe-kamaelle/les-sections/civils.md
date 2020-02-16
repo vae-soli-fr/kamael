@@ -1,0 +1,3 @@
+Ici, nous excluons d'office les Cataphractaires de cette explication. Cette section compte tous les Kamaels, de quelque section qu'ils soient, qui ont décidé de renoncer à leur statut de soldat de la nation Kamaelle. Chaque Kamael se devra de passer par l'Académie au début de sa vie. Il pourra cependant choisir sa façon de servir son peuple. Ainsi, tous les postes seront pourvus par des Kamaels volontaires et spécialisés dans un domaine. On compte parmi eux les tenanciers des magasins Kamaels, ou encore les Intendants des casernes, etc.
+
+L'on compte également dans cette catégorie les soldats ayant demandé une permission à plus ou moins longue durée pour pouvoir s'occuper de leurs enfants.
